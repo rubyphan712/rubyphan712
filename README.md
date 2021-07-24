@@ -1,4 +1,4 @@
-👋 Hi, I’m @rubyphan712
-I’m currently learning about Data Analysis. I’m looking to collaborate on any project!
+👋 Hi, I’m Ruby Phan.
+I’m currently learning about Data Analysis and looking to collaborate on any project!
 
 
